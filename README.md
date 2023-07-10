@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Fire Feathe r- Terraria Wiki
+- 👋 Hi, I’m @Fire Feather - Terraria Wiki
 - 👀 I’m interested in R/DaniDev
 - 🌱 I’m currently learning how to dani
 - 💞️ I’m looking to collaborate on Karlson
